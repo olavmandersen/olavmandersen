@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @olavmandersen
+- 👀 I’m interested in Music, Computers and games
+- 🌱 I’m currently learning Network and IT security
+- ⚡ Fun fact: My grandma's mother was supposed to travel with THE Titanic but was delayed because she took a selfie!
